@@ -1,6 +1,6 @@
 # Hi, I'm Austin
 
-Hey there 👋 I’m a Staff Software Engineer on the Core & Communities team.
+Hey there 👋 I’m a human.
 
 # What am I passionate about?
 
